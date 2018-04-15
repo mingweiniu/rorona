@@ -20,6 +20,9 @@ http://www.isheart.com/viewthread.php?tid=146551
 快速白金  
 https://forum.gamer.com.tw/Co.php?bsn=00838&sn=7613
 
+一周目clear  
+https://memoryfun3.com/games/a11_01/
+
 其他人心得  
 https://memoryfun3.com/games/a11_diary/  
-http://otakunova.blogspot.tw/2014/03/blog-post.html  
+http://otakunova.blogspot.tw/2014/03/blog-post.html
