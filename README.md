@@ -14,9 +14,11 @@ http://blog.xuite.net/ragunight/albelfunnyworld/40943299-%E7%84%A1%E8%B2%AC%E4%B
 獎盃達成方法  
 https://home.gamer.com.tw/creationDetail.php?sn=1882601
 
+快速攻略  
+http://www.isheart.com/viewthread.php?tid=146551
+
 快速白金  
 https://forum.gamer.com.tw/Co.php?bsn=00838&sn=7613
-
 
 其他人心得  
 https://memoryfun3.com/games/a11_diary/  
