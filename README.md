@@ -1,6 +1,6 @@
 # rorona
 
-forked from elleonard/rorona
+forked from [elleonard/rorona](https://github.com/elleonard/rorona)
 
 ## Others
 
