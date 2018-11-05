@@ -1,5 +1,7 @@
 # rorona
 
+forked from elleonard/rorona
+
 ## Others
 
 日文wiki  
